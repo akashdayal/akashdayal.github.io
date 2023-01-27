@@ -21,7 +21,7 @@ In the initial 5+ years of my career I have worked on creating backend services 
 ## Resume
 
 - 1 page - 
-[Word](https://docs.google.com/document/d/1bzK76oN7kOAGsRuAq8qtu6ytFpeqPTbeq6Hds-m_ZYQ/edit?usp=sharing)
+[Word](https://docs.google.com/document/d/1KDMySqMjszWtK2rU7qAwt9mus8UY73Ty)
 
 ## Contact
 
